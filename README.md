@@ -1,4 +1,4 @@
-# Olá, me chamo Rayssa Kuster 😊
+# Olá, sou a Rayssa Kuster 😊
 
 ## HARD SKILLS 
 
